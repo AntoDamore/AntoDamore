@@ -8,4 +8,4 @@ During the Academy, besides learning coding fundamentals, I was able to approach
 At the Academy there is also a strong focus on improving soft skills, creativity and learning to apply a design thinking approach. In my design process  learn the Design Thinking methodology. 
 
 You can reach out to me on LinkedIn.
-[title](https://www.linkedin.com/in/antonio-d-amore-1917875a/)
+[Click here](https://www.linkedin.com/in/antonio-d-amore-1917875a/)
